@@ -1,5 +1,7 @@
 ### Hi there 👋
-![image](https://github.com/Nandini200012/Nandini200012/assets/116378047/3515baf3-acc2-4126-beff-219f367e3805)
+
+![ezgif com-gif-maker](https://github.com/Nandini200012/Nandini200012/assets/116378047/91c24eac-1add-4f14-a66e-7059eff1e7c9)
+
 
 # 💫 About Me:
   <br>📚 Self Learner<br>💻 I’m currently Working on Flutter.<br><br>
