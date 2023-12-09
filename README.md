@@ -1,4 +1,4 @@
-### Hi there 👋
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=535&lines=Hi+👋+I'm+NANDINI+N;FLUTTER+DEVELOPER;)](https://git.io/typing-svg)
 
 ![gif2](https://github.com/Nandini200012/Nandini200012/assets/116378047/9e2814a4-379e-4709-9579-98969acbda03)
 
