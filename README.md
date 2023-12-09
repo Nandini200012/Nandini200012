@@ -1,4 +1,5 @@
 ### Hi there 👋
+![image](https://github.com/Nandini200012/Nandini200012/assets/116378047/3515baf3-acc2-4126-beff-219f367e3805)
 
 # 💫 About Me:
   <br>📚 Self Learner<br>💻 I’m currently Working on Flutter.<br><br>
