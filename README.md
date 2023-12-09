@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-![ezgif com-gif-maker](https://github.com/Nandini200012/Nandini200012/assets/116378047/91c24eac-1add-4f14-a66e-7059eff1e7c9)
+![gif2](https://github.com/Nandini200012/Nandini200012/assets/116378047/9e2814a4-379e-4709-9579-98969acbda03)
+
 
 
 # 💫 About Me:
